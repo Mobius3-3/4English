@@ -1,5 +1,5 @@
 ### Banksy auction stunt leaves art world in shreds
-=========
+***
 1. Vocabulary
 ---
 * stunt
@@ -29,8 +29,8 @@
 * nestle 
 	- v. if you nestle yourself, you put yourself in a comfortable, cozy position.
 	- eg. Nestling on the sofa and watching TV is so relaxing.
-===
+***
 2. Discussion: Is such stunt like what Banksy did art or a lot of nonsense?
-
+---
 In my mind, what Banksy did is definitely a show of performance art. Although, I'm not quite sure what the definition of performance art is, the action Banksy took inspired public to think about the value of a piece of painting and sparked huge dispute about the auction. That's just the power of performance art I can feel. 
 
