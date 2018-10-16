@@ -1,5 +1,5 @@
 # Banksy auction stunt leaves art world in shreds
-
+</br>
 
 ## 1. Vocabulary
 
@@ -30,7 +30,7 @@
 * nestle 
 	- v. if you nestle yourself, you put yourself in a comfortable, cozy position.
 	- eg. Nestling on the sofa and watching TV is so relaxing.
-***
+</br>
 
 ## 2. Discussion: Is such stunt like what Banksy did art or a lot of nonsense?
 
