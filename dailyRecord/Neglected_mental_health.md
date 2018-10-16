@@ -1,6 +1,5 @@
 # Neglected：mental health 
-  
-</br></br>
+</br>
 ## 1. Vocabulary
 
 - neglect
