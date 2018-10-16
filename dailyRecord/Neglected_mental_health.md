@@ -1,5 +1,4 @@
-# Neglected：mental health 
-  
+# Neglected：mental health </br></br>
   
 ## 1. Vocabulary
 
@@ -24,7 +23,8 @@
 - tackle
 	- v. solve
 	- eg. Taclking the core problem at first, then it will be quick to work out the whole one.
+</br>
 
 ## 2. Discussion: What's the best way to treat mental-health problem in your life?
----
+
 > As there is question or discussion raised in the audio, I just pose one and talk about it. I'm not sure if I‘ve ever met a degree of mental-health problem, but I confirm most Chinese just look over it and very few choose to see a doctor when they find some wrong mentally. So I strong recommend you to consult mental-health professioner if you feel bad mentally.
