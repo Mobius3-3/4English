@@ -1,8 +1,8 @@
 # Neglected：mental health 
-
-
+  
+  
 ## 1. Vocabulary
----
+
 - neglect
 	- v. unconsciously forget or not care about
 	- unlike "ignore" - consciously; "look over" - unconsciouly or consciously
