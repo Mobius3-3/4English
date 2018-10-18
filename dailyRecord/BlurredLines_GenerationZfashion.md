@@ -1,29 +1,31 @@
-# Turned over an old leaf：publish
+# Blurred lines：Generation Z fashion
 </br>
 
 ## 1. Vocabulary
 
-- turned over an old leaf
-	- idiom. abandon bad way to use good old one
-	- eg. He turned over an old leaf and decided not to smoke any more.
-- press
-	- n. publishing company, especially for university's publishing company
-	- eg. xxxx University Press
-- kick off
-	- idiom.  start
-	- eg. The game kicks off.
-- book fair
-	- n. 书展
-	- eg. There kicks off a book fair in London.
-- e-book/print-book
-	- n1. digital book
-	- n2. printed book
-- exposé
-	- n. reveal scandal
-	- eg. Because of exposé of president's scandal, he doesn't want this book to be published.
+- blurred lines
+	- idiom. difference of something is not defined by a certain boarder 
+	- eg. Customers don't tend to distinguish cloth by gender because of blurred lines between gender.
+- gender-fluid
+	- adj. uncertain gender for a person
+	- eg. More and more designer are interested in gender-fluid concept.
+- body-positive
+	- adj. admire and love self body
+	- eg. Body-positive compaign is kinda prevalent today.
+- unisex
+	- adj. suitable for all sexes
+	- eg. Unisex clothing more acceptable than ever.
+- scrap
+	- v. remove or get rid of sth.
+	- eg. Label of gender in garment industry is starting to be scrapped.
+- androgyny
+	- n. the quality or state of being neither specifically feminine or masculin
+	- eg. Androgyny trend happens in many different industry.
+- canny
+	- adj. smart
+	- eg. The company makes a canny market move.
 </br>
 
-## 2. Discussion: Which one you prefer? e-book or print-book?
+## 2. Discussion: How do you think of the gender-fluid trend in garment industry?
 
-> For me, I prefer reading a print-book when I'm travelling or trying to learning something new without a urgent deadline. It's more enjoyable to read a print-book. While, if I need to search for something in short time period, such as doing scientific research, I would rather read e-materials for getting useful information as quickly as possible. It's more efficient to read e-book.
-
+> As a saying goes, the only thing that doesn't change is change itself. I think gender-fluid trend is an outcome of public's view of gender that means customers are not satisfied with binary gender style of clothing and choose to embrace unisex fashion trend. 
