@@ -34,4 +34,4 @@
 
 ## 2. Discussion: How do you think of the Oscar award?
 
-> Even though I'm not a fanantical fan of movie, I do follow the news of Oscar award almost every year consciously or unconsciously. It's just like even you are not a basketball fan you still receive some news of NBA because of worldwide influence of this big league with powerful brand. 
+> Even though I'm not a fanantical fan of movie, I do follow the news of Oscar award almost every year consciously or unconsciously. It's just like even you are not a basketball fan you still receive some news of NBA All-star games because of worldwide influence of the big league NBA with powerful brand. Hollywood and Oscar Award also have the same influential power as NBA and NBA All-star games. Oscar award is such a big title that would not only make Lady Gaga gain recognition in movie field but also be recognized as a super movie star all over the world.
