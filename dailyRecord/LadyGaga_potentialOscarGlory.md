@@ -1,4 +1,4 @@
-# Blurred lines：Generation Z fashion
+# Lady Gaga on the edge of potential Oscar glory
 </br>
 
 ## 1. Vocabulary
