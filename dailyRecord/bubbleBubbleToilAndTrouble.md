@@ -33,6 +33,6 @@
 
 </br>
 
-## 2. Discussion: How do you think of the Oscar award?
+## 2. Discussion: How do you think of the culture of witch?
 
-> Even though I'm not a fanantical fan of movie, I do follow the news of Oscar award almost every year consciously or unconsciously. It's just like even you are not a basketball fan you still receive some news of NBA All-star games because of worldwide influence of the big league NBA with powerful brand. Hollywood and Oscar Award also have the same influential power as NBA and NBA All-star games. Oscar award is such a big title that would not only make Lady Gaga gain recognition in movie field but also be recognized as a super movie star all over the world.
+> Nowadays, for most yongsters it's pretty sure that believing many super nature things are caused by the existence of witch is a superstitious thought. It's more convicing to utilizing scientific method to reveal or explain those super nature things. While, without acceleration of modern science, it's understandable that folks lived in medieval tended to atrribute all those strange things happened arround them to super natural power such as witch.
