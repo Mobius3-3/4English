@@ -6,30 +6,31 @@
 - cauldron
 	- n. big container to boil sth, especially for cooking
 	- eg. The cauldron on the hotplate is bubbling 
-- blockbuster
-	- n. hugely successful movie 
-	- eg. After acting in lots of bad movies, he finally created a great role in a blockbuster.
-- furious
-	- adj. dramatically or angrily
-	- eg. He was furious at the way his wife had been treated.
-- race to
-	- phrase. run to some where or something goes quickly to a situation
-	- eg. Because of high rate of unemployment, this country raced to a depression.
-- do right in sth.
-	- idiom. do right things in sth.
-	- eg. President did a lot of right in cutting unnecessary expenses.
-- disarming
-	- adj. make sb. dismount protection or let audience into the role of the movie
-	- eg. Her disarming performance makes audiences feel like into the world of the play.
-- elaborate stagecraft
-	- adj. performance with elaborate stage props and clothing 
-	- eg. She is famous for elaborate stagecraft.
-- strip down
-  - phrase. get rid of
-  - eg. He stripped down all his fake side and then won back trust of his girl friend.
-- thematic
-  - adj. about theme
-  - eg. He undertands thematic ideas very fast.
+- spellbound
+	- adj. to be obssessed with 
+	- eg. His audience had listened like children, spellbound by his words.
+- enchanting
+	- adj. fascinating
+	- eg. His show of performance art was enchanting.
+- spooky
+	- adj. scary
+	- eg. The whole place has a little spooky atmosphere.
+- gawp at
+	- phrase. stare at sth. in a rude or stupid way
+	- eg. He just stood here gawping at me.
+- witchcraft
+	- n. supernatural power of witchcraft
+	- eg. Origin medieval witchcraft books used to summon demons are very rare.
+- summon
+	- v. performance with elaborate stage props and clothing 
+	- eg. She summoned a docter, and hurried over here.
+- bracelet
+  - n. round jewelry worn on the wrist
+  - eg. Her bracelet is a rare jewelry.
+- sorcery
+  - n. super natural power
+  - eg. Women accused of sorcery, were weighed against a large stack of Bubbles.
+
 </br>
 
 ## 2. Discussion: How do you think of the Oscar award?
