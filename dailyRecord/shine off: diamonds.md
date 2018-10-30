@@ -33,6 +33,6 @@
 
 </br>
 
-## 2. Discussion: How do you think of the culture of witch?
+## 2. Discussion: How do you think of price trend of diamond，keep in bearish trend or recover?
 
-> Nowadays, for most yongsters it's pretty sure that believing many super nature things are caused by the existence of witch is a superstitious thought. It's more convicing to utilizing scientific method to reveal or explain those super nature things. While, without acceleration of modern science, it's understandable that folks lived in medieval tended to atrribute all those strange things happened arround them to super natural power such as witch.
+> As the news indicates, now the market of diamond is between a rock and hard place because of the increase of mining supply, bad name of blood diamond as well as competiton against diamonds made in laboratory with improved quality. Not only those factors mentioned in the news push price of diamond under huge pressure, but also the change of lifestyle will result in long-term bearish trend of diamond's price. People tend to spend more and more time in the internet so some digital assets such as bitcoin become popular. Those digital assets are substitution of diamond, which is more consistent with people's lifestyle. What's more? Mainstream aesthetics tend to accept those productions involving high-tech, just like the Apple Watch are replacing traditional watch. So the bearish trend of diamond market just started and will last for long.
