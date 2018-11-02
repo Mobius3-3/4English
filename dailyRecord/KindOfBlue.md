@@ -46,9 +46,9 @@
 	- eg. He is fiercely contested by another candidate.
 </br>
 
-## 2. Discussion: Is such stunt like what Banksy did art or a lot of nonsense?
+## 2. Discussion: How do you think the viewpoint that language reflects a person's worldview?
 
-> In my mind, what Banksy did is definitely a show of performance art. Although, I'm not quite sure what the definition of performance art is, the action Banksy took inspired public to think about the value of a piece of painting and sparked huge dispute about the auction. That's just the power of performance art I can feel. 
+> obviously, language is the way a person describes the image of the world in his mind, which reflects his cognition of world. For example, there are diverse vocabularies one could use to express subtle details of relatives. That reflects those who speak Chinese have much strong bonds with relatives as well as care about maintaining harmonious relationship with family members. So I believe language not only reflects a person's wordview but also influences it.
 </br>
 
 ## 3. Article deconstruction
