@@ -25,7 +25,7 @@ He found violet in only 87 paintings before the mid-nineteenth century.
  </br>
  
  But if, as some scientists believe, language reflects a person's worldview, Mr Tager's finding suggests that for many, the world is now a bluer place than it was 150 years ago.
- </br>
+ </br></br>
 
 ## 1. Vocabulary
 
